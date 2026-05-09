@@ -1,3 +1,4 @@
+![image_alt](https://github.com/latisa-29/KKA-Latisa-/blob/dcc419df57eba77d05319ecde00c61367a075fd0/Screenshot%202026-05-09%20123151.png)
 ![image_alt](https://github.com/latisa-29/KKA-Latisa-/blob/cbd1bd65ae56ba965c1272eb3a6bfddf594094b2/Screenshot%202026-05-08%20175637.png)
 ![image_alt](https://github.com/latisa-29/KKA-Latisa-/blob/41e2d50972bf63ea5dc70bd8b6fda85619c72175/Screenshot%202026-05-08%20191547.png)
 ![image_alt](https://github.com/latisa-29/KKA-Latisa-/blob/10c181a56f79d54f17c424ae309d0c2d8d38b961/Screenshot%202026-05-08%20191541.png)
